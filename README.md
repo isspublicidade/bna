@@ -1,1 +1,1 @@
-# This is the website of my store. Feel free to visit <3
+# This is the website of my bikini store. Feel free to visit <3
